@@ -1,2 +1,3 @@
 # ccg
-U skoli smaranje 
+lkokoko
+
